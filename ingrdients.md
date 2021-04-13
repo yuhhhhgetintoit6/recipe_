@@ -1,0 +1,1 @@
+granulated sugar, all-purpose flour, cocoa powder, powdered sugar, dark chocolate chips, sea salt, large eggs, oil, water, vanilla
